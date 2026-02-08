@@ -1,2 +1,0 @@
-# Mi-amor-
-I lobeu 💗
